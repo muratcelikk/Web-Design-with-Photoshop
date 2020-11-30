@@ -1,4 +1,4 @@
 # Web-Design-with-Photoshop
 
-##Quotation: Arin
+##Quotation: Arin Yazilim
 
